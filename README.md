@@ -1,1 +1,1 @@
-# JEWELLERY file:///Users/Venky/Desktop/GOLD/JEWELLERY/Index.html
+ file:///Users/Venky/Desktop/GOLD/JEWELLERY/Index.html
